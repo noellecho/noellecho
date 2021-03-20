@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @noellecho
-- 👀 I’m interested in ...music
+- 👀 I’m interested in ...building a website, music, sustainability
 - 🌱 I’m currently learning ...how to use this
 - 📫 How to reach me ...linkedin
 
